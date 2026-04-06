@@ -1,2 +1,2 @@
 # TEAM-X
-Just an example 
+WDG OF 8 GROUP PROJECT
